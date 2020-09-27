@@ -1,1 +1,0 @@
-# amoware.github.io
